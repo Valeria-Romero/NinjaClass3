@@ -1,0 +1,1 @@
+# NinjaClass3
